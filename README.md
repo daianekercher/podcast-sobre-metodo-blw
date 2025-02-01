@@ -1,2 +1,2 @@
-# podcast-sobre-metodo-blw
-Podcast baseado no ebook criado sobre o método BLW na outra tarefa
+# Como acessar o audio do podcast
+Acesso em: https://drive.google.com/file/d/17sA6xscUTqW8zBLqhsgNbdFJa9QfFtPa/view?usp=sharing
